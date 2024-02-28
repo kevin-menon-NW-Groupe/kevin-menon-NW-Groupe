@@ -2,6 +2,6 @@
 - 👀 I’m interested in slacking off
 - 🌱 I’m currently learning how to look like I'm working hard
 - 💞️ I’m looking to collaborate on building an autocratic dictatorship
-- 📫 How to reach me : please contact my colleagues
+- 📫 How to reach me : please contact my colleagues [@PedroSchroeder](https://github.com/PedroSchroeder), [@jeremykalvar](https://github.com/jeremykalvar) and [@haroldnw](https://github.com/haroldnw)
 - 😄 Pronouns: They/Them
 - ⚡ Fun fact: I am a sugar baby
